@@ -1,4 +1,4 @@
-# TAREA-2.-Drenajes-de-Tierras-Agricolas.-Ciro-Ganoa-Lopez
+# TAREA-2.-Drenajes-de-Tierras-Agricolas.-Ciro Fernandez- López Ganoa-Lopez Rativa
 Potencial Hidrico 
 
 UNIVERSIDAD NACIONAL DE COLOMBIA
